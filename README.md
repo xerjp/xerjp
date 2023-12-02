@@ -342,4 +342,32 @@
 
 天真软件库:   https://t.me/tzrjk
 
-哈皮软
+哈皮软件库:   https://t.me/hprjk
+
+平凡软件库:   https://t.me/pfrjk
+
+破冰软件库:   https://t.me/pbrjk
+
+涂抹软件库:   https://t.me/tmrjk
+
+天气软件库:   https://t.me/tqrjk
+
+一品软件库:   https://t.me/yprjk
+
+孔雀软件库:   https://t.me/kqrjk
+
+泡沫软件库:   https://t.me/pmrjk
+
+免费软件库:   https://t.me/mfrjk
+
+万润软件库:   https://t.me/wrrjk
+
+万通软件库:   https://t.me/wtrjk
+
+七夕软件库:   https://t.me/qxrjk
+
+青桔软件库:   https://t.me/qjrjk
+
+清凉软件库:   https://t.me/qlrjk
+
+乾坤软件库:   https://t.me/qkrjk
